@@ -1,0 +1,36 @@
+The life of @dalanMendonca
+===============
+
+- 05/06/1991 Born in Bombay Central, India
+- ~1993 Got bitten by a dog on my ear
+- 1996-06/1999 Lived in Sandhurst Road & attended St. Josephs High school
+- ~1995 Got 7 stitches on my forehead on tripping on the wrong thing
+- 06/1999-06/2000 Lived in Naigaon
+- ~1999 - Got scalded by a bucket full of boiling hot water 
+- 06/2000-05/2001 Lived in Nallasopra
+- 05/2001-03/2007 Lived in Sandhurst Road 
+- 05/2001-05/2006 Attended St. Josephs High school again!
+- 2002-2004 Played for the school football team
+- 14/03/2003 - Won a dance competition!
+- 23/03/2003 - Cried like a little girl when [Australia beat India](http://www.espncricinfo.com/ci/engine/current/match/65286.html) in the World Cup Final
+- 04/2003 - Finally got an 'A' on my last Art assignment
+- 04/2005 - Gave myself a hairline fracture in the wrist. Got promoted to 10th class without writing final exams ;)
+- 05/2006 - Topped the school in the 10th board exam
+- 06/2006-05/2008 Attended Rajhans Vidyalaya
+- 12/2006 - First relationship albeit really short-lived one!
+- 03/2007-07/2008 Lived in Naigaon again!
+- 28/08/2008 Got my first computer - An IBM ThinkPad R51
+- 29/08/2008-04/2012 Studied Electrical Engineering at BITS-Goa
+- 30/04/2009 - First [tweet](https://twitter.com/dalanMendonca/status/1651624803)
+- 05/2010-06/2010 Summer intern at Essar Power, Jamnagar, Gujarat
+- 07/2011-12/2011 Intern at Sukam Power Systems, Gurgaon
+- 08/04/2011-11/01/2013 First long relationship
+- 28/05/2012 - Started working at Facebook
+- 21/01/2013 - Attended the Swedish House Mafia concert in Bangalore
+- 27/03/2013-28/03/2013 - Visited Wayanad and covered all 4 southern states in one trip
+- 10/2012 - Finished a novice triathlon
+- 04/06/2013 - Bought [dalanm.com](http://www.dalanm.com)
+- 05/08/2013-05/11/2013 Went on a rotation to Facebooks Sales Reporting team
+- 31/10/2013-03/11/2013 - Visited Kodaikanal, India
+- 08/11/2013-20/11/2013 - Visited San Francisco, Las Vegas and Los Angeles in the USA
+- 06/12/2013 - Ate shark, emu, quail, rabbit & octopus meat for the first time
